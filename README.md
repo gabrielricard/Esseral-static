@@ -1,1 +1,0 @@
-# Esseral-static
